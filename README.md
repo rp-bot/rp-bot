@@ -1,4 +1,4 @@
-# Hi 👋 I'm Pratham Vadhulas, AKA [Rohit Prat](https://www.instagram.com/rohit.prat/)
+# Hi 👋 I'm Pratham Vadhulas
 
 ## I love Coding, Climbing and making music & films
 
